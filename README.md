@@ -98,10 +98,3 @@ I'm a motivated and analytical PGDM student specializing in **Finance and Operat
 - 🇮🇳 Hindi  
 
 ---
-
-## ✅ Declaration
-
-I hereby declare that the information above is true to the best of my knowledge.  
-📦 *Open to Relocate* | ✈️ *Open to Travel*
-
----
