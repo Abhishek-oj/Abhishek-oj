@@ -2,7 +2,7 @@
 
 🎓 *PGDM (Finance & Operations)* | 📊 *Aspiring Data-Driven Professional*  
 📍 New Delhi, India  
-📧 **Email:** [abhishek_pgdm2024@ndiit.org](mailto:abhishek_pgdm2024@ndiit.org)  
+📧 **Email:** [abhishek_pgdm2024@ndiit.org](mailto:ojhaabhishek681@gmail.com)  
 📞 **Phone:** +91-8920652908  
 🔗 **LinkedIn:** [linkedin.com/in/abhishek-ojha-45b22b321](https://linkedin.com/in/abhishek-ojha-45b22b321)  
 
