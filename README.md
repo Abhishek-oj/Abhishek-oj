@@ -33,7 +33,8 @@ I'm a motivated and analytical PGDM student specializing in **Finance and Operat
 
 - 💼 MS Excel  
 - 📊 Power BI  
-- 🤝 Team Management  
+- 🤝 Team Management
+-  Data Visualization  
 
 ---
 
