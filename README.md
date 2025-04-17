@@ -59,7 +59,7 @@ I'm a motivated and analytical PGDM student specializing in **Finance and Operat
 ## 🤝 Volunteering
 
 ### 🍽️ **Robin Hood Army (NGO)** *(Nov 2024 – Present)*  
-- Led food distribution across New Delhi  
+- Helping in food distribution across New Delhi  
 - Coordinated team pickups and on-ground logistics  
 
 ### 🎉 **College Freshers Party Organizer** *(Oct 2024)*  
